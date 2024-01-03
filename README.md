@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sandyankurkumar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZomscDgIf84UR831KWaoYsKxCtf0ntHw/view?usp=sharing](https://drive.google.com/file/d/1ZomscDgIf84UR831KWaoYsKxCtf0ntHw/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/13tbJIaoZtjuVVD_g9mbRY2saBVnzVz83/view?usp=sharing](https://drive.google.com/file/d/13tbJIaoZtjuVVD_g9mbRY2saBVnzVz83/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
